@@ -6,8 +6,6 @@
 
 💞️ I'm looking to collaborate on: initiatives that support the development of young people in the areas of technology and artistic expression. 
 
-📫 How to contact me: marcoaureliomarcou01@gmail.com 
-
 😄 Pronouns: he/him 
 
 ⚡ Fun fact: I'm developing a project that encourages young people to express themselves artistically. Currently, the project is on hold.
