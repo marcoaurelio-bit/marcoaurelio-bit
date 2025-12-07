@@ -4,7 +4,7 @@
 
 🌱 I'm currently learning: programming using the Godot engine. 
 
-💞️ I'm looking to collaborate on: initiatives that support the development of young people in the areas of technology and artistic expression. 
+👨‍💻 I'm looking to collaborate on: initiatives that support the development of young people in the areas of technology and artistic expression. 
 
 😄 Pronouns: he/him 
 
